@@ -5,7 +5,5 @@
 
 ## KALAU NGEFORK JANGAN LUPA KASI STARNYA YA ANJG 
  
-## Testi Bot [Nasty Music](https://t.me/Nastymusiicbot)
+## Testi Bot [ᴍᴜꜱɪᴄ ᴋᴇᴋɪɴɪᴀɴ](https://t.me/Kekiniian_bot)
 
-## Credit
-• [KYY](t.me/zxcskyy)
